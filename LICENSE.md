@@ -1,4 +1,4 @@
-# 
+# Gimp for macOS best Script: grid systems & AI upscaling offers the most advanced Gimp for macOS script, with grid systems and AI upscaling. Ideal for professional designers and
 
 
 
